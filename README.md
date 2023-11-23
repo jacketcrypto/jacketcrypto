@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @jacketcrypto
-- 🌱 I’m currently working on Toshimon (www.toshimon.io)
-- 📫 How to reach me: www.twitter.com/bitcoinjacket
+- 🌱 I’m currently working on 
+- 📫 How to reach 
